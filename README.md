@@ -1,1 +1,1 @@
-https://github.com/Gifanaq/posmotri-v-okno-
+https://github.com/Gifanaq/posmotri-v-okno-ad
